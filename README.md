@@ -1,1 +1,1 @@
-![gw2](http://pre01.deviantart.net/410a/th/pre/f/2012/155/d/e/guild_wars_2_logo_vector_by_krukmeister-d52813m.jpg)![react](http://logos-download.com/wp-content/uploads/2016/09/React_logo_wordmark.png)
+![gw2](https://wbo2hhkgdnexdedu-zippykid.netdna-ssl.com/wp-content/uploads/2012/08/GW2-Logo.jpg)![react](https://cdn.worldvectorlogo.com/logos/react.svg)
