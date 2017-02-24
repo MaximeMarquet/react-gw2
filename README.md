@@ -1,1 +1,1 @@
-![gw2](https://wbo2hhkgdnexdedu-zippykid.netdna-ssl.com/wp-content/uploads/2012/08/GW2-Logo.jpg)![react](https://cdn.worldvectorlogo.com/logos/react.svg)
+![gw2](http://img15.hostingpics.net/pics/534776gw2.png)![react](http://img15.hostingpics.net/pics/474754react.png)
